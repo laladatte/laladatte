@@ -1,4 +1,4 @@
-# Nadezhda (laladatte)
+# Nadezhda (Meowriel)
 
 **3D Artist — Modeling · Sculpting · Texturing · Lighting**
 
